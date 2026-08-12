@@ -22,4 +22,4 @@
 
  [Ata](https://akitosstupid.atabook.org/) ୨୧
   [strwpage](https://akitostastypancakes.straw.page) ୨୧
-  [prns](https://en.pronouns.page/@Akitxshinxnxme)
+  [prns](https://en.pronouns.page/@Akiyoi)
