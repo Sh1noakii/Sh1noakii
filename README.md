@@ -5,7 +5,7 @@
 
    .. ──   ──  ──  ──  ──  ──  ──  ── .✦ [Ata](https://akitosstupid.atabook.org/) ୨୧
     [strwpage](https://akitostastypancakes.straw.page) ୨୧
-      [prns](https://en.pronouns.page/@Akiyoi) ✦.  ──  ──  ──  ──  ──  ──  ── ──  ..
+      [prns](https://en.pronouns.page/@Akiyoi) 
 
 <p align="center"><img width="600" height="195" alt="Untitled325_20260828151035" src="https://github.com/user-attachments/assets/922f5137-1f29-458f-877f-c09e2d482fad" />
 
