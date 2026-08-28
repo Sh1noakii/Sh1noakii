@@ -3,7 +3,7 @@
                              
 /< <img width="400" height="433" alt="Untitled326_20260828151516" src="https://github.com/user-attachments/assets/0dd1adf0-e09c-4041-a1b8-9219cba7ebfa" />
 
-   .. ──   ──  ──  ──  ──  ──  ──  ─ .✦ [Ata](https://akitosstupid.atabook.org/) ୨୧
+   .. ──   ──  ──  ──  ──  ──  ──  ── .✦ [Ata](https://akitosstupid.atabook.org/) ୨୧
     [strwpage](https://akitostastypancakes.straw.page) ୨୧
       [prns](https://en.pronouns.page/@Akiyoi) ✦.  ──  ──  ──  ──  ──  ──  ── ──  ..
 
